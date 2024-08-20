@@ -1,1 +1,1 @@
-# dekopinda-kabupaten-badung
+# dekopinda-karanganyar
